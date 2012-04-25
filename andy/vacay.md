@@ -15,7 +15,7 @@ title: "Family vacation 2012"
 
 ![pic](http://www.northherohouse.com/wp-content/uploads/2009/06/DSC_0681-1-300x199.jpg)
 
-* $1,800 *4 nights only*
+* $2,109 *5 nights only*
 * North Hero
 * East views
 
