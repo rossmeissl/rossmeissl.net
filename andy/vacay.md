@@ -120,4 +120,14 @@ title: "Family vacation 2012"
 
 *We've passed this one up a couple of times, but depending on the answers to my questions, it could be perfect. Especially if close to NHH.*
 
+* * *
+
+## [Big Alburg House](http://www.vrbo.com/384552)
+
+![pic](http://images.vrbo.com/vrbo/images/578158)
+
+* $1,400 *Was asking $2,600*
+* 8BR
+* Alburg
+* West views
 
