@@ -109,19 +109,6 @@ title: "Family vacation 2012"
 
 * * *
 
-## [Sun Lake Mt. House](http://www.vermontproperty.com/detail/Vermont/lake-champlain-rentals/966/)
-
-![pic](http://www.vermontproperty.com/u/present/966_12127667046375a.jpg)
-
-* $1,000-$1,600 *Have an email in asking specific price*
-* 2BR *Have an email in asking if there's a third place to sleep*
-* North Hero *Have an email in asking where exactly this is*
-* West views
-
-*We've passed this one up a couple of times, but depending on the answers to my questions, it could be perfect. Especially if close to NHH.*
-
-* * *
-
 ## [Big Alburg House](http://www.vrbo.com/384552)
 
 ![pic](http://images.vrbo.com/vrbo/images/578158)
