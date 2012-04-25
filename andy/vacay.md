@@ -118,4 +118,4 @@ title: "Family vacation 2012"
 * Alburg
 * West views
 
-*Note that W Shore Rd is <b>in between<b> the house and the lake here.*
+*Note that W Shore Rd is in between the house and the lake here.*
